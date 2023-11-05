@@ -1,2 +1,2 @@
-# My-First-Presentation-
-About Republic of Liberia Past &amp; Present 
+# Easter Gbortoe -
+About Republic of Liberia Past & Present
